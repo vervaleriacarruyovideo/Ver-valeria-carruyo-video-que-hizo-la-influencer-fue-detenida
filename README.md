@@ -2,7 +2,13 @@
 
 La influencer venezolana Valeria Carruyo, conocida por su presencia en plataformas digitales, enfrenta un escándalo mediático y legal tras un accidente de tránsito ocurrido el pasado 19 de enero de 2025 en Maracaibo.
 
-Según los reportes preliminares, Carruyo presuntamente atropelló a Gleison Briceño, de 51 años, y a su hijo de ocho años, quienes viajaban en una motocicleta.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 
 El accidente, que tuvo lugar alrededor de las 16:40 horas, dejó a las víctimas con lesiones graves. Briceño se encuentra en estado crítico, enfrentando la posibilidad de perder una pierna si no hay mejoras en las próximas horas.

@@ -4,6 +4,7 @@ La influencer venezolana Valeria Carruyo, conocida por su presencia en plataform
 
 Según los reportes preliminares, Carruyo presuntamente atropelló a Gleison Briceño, de 51 años, y a su hijo de ocho años, quienes viajaban en una motocicleta.
 
+
 El accidente, que tuvo lugar alrededor de las 16:40 horas, dejó a las víctimas con lesiones graves. Briceño se encuentra en estado crítico, enfrentando la posibilidad de perder una pierna si no hay mejoras en las próximas horas.
 
 El caso ha encendido las redes sociales, donde las críticas hacia Carruyo no se han hecho esperar.
